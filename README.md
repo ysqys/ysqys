@@ -1,4 +1,4 @@
-I’m ysqys and I do not function
+I’m ysqys (pronounced "iss-kiss", long story) and I do not function
 
 that is not a programming joke, I do not do things
 
